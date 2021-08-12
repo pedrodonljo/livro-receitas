@@ -6,5 +6,7 @@ Olá! Bem vindo ao meu livro de receitas! 🥂
 
 - Pave de chocolate
 
+- Bolo de morango
+
   
 
